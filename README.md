@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **dolaisanka09@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1k_Ic19FMianC3XkIELhr1A9ivkxiN4z_/view?usp=drivesdk](https://drive.google.com/file/d/1k_Ic19FMianC3XkIELhr1A9ivkxiN4z_/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1omnYlMZgxeDHBnF076a7BjksNXXFxKzF/view?usp=drive_link](https://drive.google.com/file/d/1omnYlMZgxeDHBnF076a7BjksNXXFxKzF/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
